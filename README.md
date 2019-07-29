@@ -1,2 +1,2 @@
 # ridhimashinde
-Chwck out my website at: ridhimashinde.com
+Check out my website at: ridhimashinde.com
